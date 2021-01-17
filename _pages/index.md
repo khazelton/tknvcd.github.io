@@ -7,7 +7,9 @@ redirect_from:
   - /about/
   - /about.html
 ---
-![](../images/rojoUkr.png)
+![](../images/rojoUkr.png)6
+
+[17 Jan 2021: Thomas Nelson to Ron Johnson; “Someone needs to go to Washington to do the work you’re supposed to do”. That “someone” will be Thomas Nelson @NelsonforWI](https://twitter.com/eileenvan55/status/1350060755463368706)
 
 [12 Jan 2021: More evidence in support of RonJo's resignation or expulsion](https://crooksandliars.com/2021/01/ron-johnson-unfit-office?utm_source=social&utm_medium=facebook&utm_content=40795)
 
