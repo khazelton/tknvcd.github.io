@@ -9,6 +9,8 @@ redirect_from:
 ---
 ![](../images/rojoUkr.png)
 
+[3 Aug 21: Washington Post: Ron Johnson, without evidence, alleges that FBI knew more about Jan. 6 than they let on](https://www.washingtonpost.com/politics/ron-johnson-fbi/2021/08/02/5791b4aa-f25f-11eb-81d2-ffae0f931b8f_story.html)
+
 [23 Mar 21: NY Times: "Assaulting the truth Ron Johnnson helps erode confidence in government"](https://www.nytimes.com/2021/03/21/us/politics/ron-johnson-wisconsin-misinformation.html?searchResultPosition=1)
 
 [17 Mar 21: Senator Menendez on RoJo's words: "Everyone in this body should know that when you perpetuate such racist tropes, you contribute to a culture that gives people permission to treat Black Americans as suspicious and their lives as expendable](https://www.washingtonpost.com/opinions/2021/03/17/menendez-ron-johnsons-comments-were-racist/)
