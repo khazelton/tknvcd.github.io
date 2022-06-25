@@ -16,7 +16,8 @@ redirect_from:
 ---
 **Andrii Derkach**
 
-  [25 Jun 2022: Rojo pal Andrii Derkach sets up agencies in Ukraine to support the Russian war of aggression](https://odessa-journal.com/the-sbu-exposed-the-intelligence-network-of-the-gru-of-the-russian-federation-which-included-the-peoples-deputy-of-ukraine/)  [SEE ALSO ](https://www.reuters.com/world/europe/ukraine-accuses-us-sanctioned-lawmaker-working-russia-2022-06-24/)
+  [25 Jun 2022: Rojo pal Andrii Derkach sets up agencies in Ukraine to support the Russian war of aggression](https://odessa-journal.com/the-sbu-exposed-the-intelligence-network-of-the-gru-of-the-russian-federation-which-included-the-peoples-deputy-of-ukraine/)  
+  [SEE ALSO Reuters: ](https://www.reuters.com/world/europe/ukraine-accuses-us-sanctioned-lawmaker-working-russia-2022-06-24/)
 
   [22 Sep 2020: CIA, NSA and FBI believed Putin may be personally directing the anti-Biden campaign. Derkach is the prime agent](https://www.washingtonpost.com/opinions/2020/09/22/secret-cia-assessment-putin-probably-directing-influence-operation-denigrate-biden/)
   
