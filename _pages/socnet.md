@@ -16,6 +16,8 @@ redirect_from:
 ---
 **Andrii Derkach**
 
+  [25 Jun 2020: Andrii Derkach set up a network of private security firms to support the Russian forces invading Ukraine](https://www.theguardian.com/world/live/2022/jun/24/russia-ukraine-war-zelenskiy-hails-eu-decision-russian-forces-encircle-troops-in-lysychansk-kyiv-officials-say-live-news?page=with:block-62b627548f0875bb61abb3da#block-62b627548f0875bb61abb3da)
+  
   [22 Sep 2020: CIA, NSA and FBI believed Putin may be personally directing the anti-Biden campaign. Derkach is the prime agent](https://www.washingtonpost.com/opinions/2020/09/22/secret-cia-assessment-putin-probably-directing-influence-operation-denigrate-biden/)
   
   [10 Sep 2020: Andrii Derkach, designated Russian agent, sanctioned for interference in 2020 election](https://home.treasury.gov/news/press-releases/sm1118)
