@@ -7,6 +7,7 @@ redirect_from:
   - /about/
   - /about.html
 ---
+[07 Dec 2022: Derkach convicted on 7 counts](https://www.dailykos.com/stories/2022/12/7/2140531/-Giuliani-Collaborator-Derkach-Indicted-on-7-Counts-of-Fraud-and-Money-Laundering)
 ___
 [26 Aug 2020: "Performing his usual role as the president’s political valet, Johnson greeted DeJoy at a hearing on August 21 with lavish praise and a nutty conspiracy theory."--Milwaukee Independent](http://www.milwaukeeindependent.com/syndicated/senator-ron-johnson-is-playing-the-fool-on-trumps-behalf-in-order-to-wreck-the-postal-service/)
 
