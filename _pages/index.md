@@ -7,7 +7,7 @@ redirect_from:
   - /about/
   - /about.html
 ---
-![](../images/rojoUkr.png)
+![](../images/.png)
 
 [3 Aug 21: Washington Post: Ron Johnson, without evidence, alleges that FBI knew more about Jan. 6 than they let on](https://www.washingtonpost.com/politics/ron-johnson-fbi/2021/08/02/5791b4aa-f25f-11eb-81d2-ffae0f931b8f_story.html)
 
